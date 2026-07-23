@@ -5,9 +5,10 @@
   
 
 <h1 align="center">
-  hi im edward i love medical science, horror, batman rogues and a bunch of other faggy things
+  hi im edward i love medical science, movies, horror, batman rogues & a bunch of other things
+
   
-  <img width="100" alt="meow" src="https://64.media.tumblr.com/2e4374d919b086a99913e65828dcdec5/659ebe415f308bbb-19/s2048x3072/9b56c7ffe008cc11aea391c8bec33b84ebb646c0.pnj">
+  <img width="200" alt="meow" src="https://64.media.tumblr.com/2e4374d919b086a99913e65828dcdec5/659ebe415f308bbb-19/s2048x3072/9b56c7ffe008cc11aea391c8bec33b84ebb646c0.pnj">
   
 STAMPS ^_^  
   
