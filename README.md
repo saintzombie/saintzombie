@@ -1,13 +1,13 @@
+##
 <h1 align="center">
   edward / graham
 <p>
 <img width="500" alt="gay" src="https://64.media.tumblr.com/c7f03399aca84607254533eea0aef374/72585813b63f7be6-a8/s1280x1920/9c907f660b94e70ee86c2dea0cd2716ba1a0fb5c.pnj">
-  
 
+  ### hi im edward i love medical science, movies, horror, batman rogues & a bunch of other things. wincest dni pls thanks.
+ ### I enjoy dark media, but I do not want to interact with people who are into incest or anything like that. No hard feelings it's just for my own safety.
 <h1 align="center">
-  hi im edward i love medical science, movies, horror, batman rogues & a bunch of other things.
-
-  wincest dni pls thanks
+  
   
   <img width="200" alt="meow" src="https://64.media.tumblr.com/2e4374d919b086a99913e65828dcdec5/659ebe415f308bbb-19/s2048x3072/9b56c7ffe008cc11aea391c8bec33b84ebb646c0.pnj">
   
