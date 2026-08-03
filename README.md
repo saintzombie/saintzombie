@@ -1,15 +1,15 @@
-##
 <h1 align="center">
   edward / graham
 <p>
-<img width="500" alt="gay" src="https://64.media.tumblr.com/c7f03399aca84607254533eea0aef374/72585813b63f7be6-a8/s1280x1920/9c907f660b94e70ee86c2dea0cd2716ba1a0fb5c.pnj">
-
-  ### hi im edward i love medical science, movies, Supernatural, horror, Batman rogues & a bunch of other things. wincest dni pls thanks.
- ### I enjoy dark media, but I do not want to interact with people who are into incest, loli/shota or anything like that. No hard feelings it's just for my own safety. I probably also won't interact with you if you label yourself as profic or darkship or whatever da hellll
+<img width="150" alt="bros" src="https://64.media.tumblr.com/cad02cbd68d401c7cf844eaa33d2f87c/99f737933739d0f0-1b/s2048x3072/3059147d893d2df71cdc94c827403de46e67a1a7.pnj">
+  
+  #### hi im edward i love medical science, movies, Supernatural, horror, Hannibal, Batman rogues & a bunch of other things. wincest dni pls thanks.
+  <img width="150" alt="bros" src="https://64.media.tumblr.com/6e95a1313dd097ddb00eb533e7e39955/99f737933739d0f0-46/s2048x3072/3a5988f17061f967be8af0b862792b035092f770.pnj"><img width="150" alt="bros" src="https://64.media.tumblr.com/3c366eee4d4f11dc005738a4d801ddce/99f737933739d0f0-11/s2048x3072/38d284d99fa3d65f04c26eff112d764731598a0f.pnj">
+ #### I enjoy dark media, but I do not want to interact with people who are into incest, loli/shota or anything like that. No hard feelings it's just for my own safety. I probably also won't interact with you if you label yourself as profic or darkship or whatever da hellll
 <h1 align="center">
+
   
-  
-  <img width="200" alt="meow" src="https://64.media.tumblr.com/2e4374d919b086a99913e65828dcdec5/659ebe415f308bbb-19/s2048x3072/9b56c7ffe008cc11aea391c8bec33b84ebb646c0.pnj">
+  <img width="150" alt="meow" src="https://64.media.tumblr.com/2e4374d919b086a99913e65828dcdec5/659ebe415f308bbb-19/s2048x3072/9b56c7ffe008cc11aea391c8bec33b84ebb646c0.pnj">
   
 STAMPS ^_^  
   
