@@ -5,7 +5,7 @@
 <img width="500" alt="gay" src="https://64.media.tumblr.com/c7f03399aca84607254533eea0aef374/72585813b63f7be6-a8/s1280x1920/9c907f660b94e70ee86c2dea0cd2716ba1a0fb5c.pnj">
 
   ### hi im edward i love medical science, movies, Supernatural, horror, Batman rogues & a bunch of other things. wincest dni pls thanks.
- ### I enjoy dark media, but I do not want to interact with people who are into incest, loli/shota or anything like that. No hard feelings it's just for my own safety.
+ ### I enjoy dark media, but I do not want to interact with people who are into incest, loli/shota or anything like that. No hard feelings it's just for my own safety. I probably also won't interact with you if you label yourself as profic or darkship or whatever da hellll
 <h1 align="center">
   
   
