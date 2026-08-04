@@ -1,5 +1,5 @@
 <h1 align="center">
-  edward / graham
+  edward / dean
 <p>
 <img width="150" alt="bros" src="https://64.media.tumblr.com/cad02cbd68d401c7cf844eaa33d2f87c/99f737933739d0f0-1b/s2048x3072/3059147d893d2df71cdc94c827403de46e67a1a7.pnj">
   
