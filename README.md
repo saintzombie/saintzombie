@@ -5,7 +5,7 @@
   
   #### hi im edward i love medical science, movies, Supernatural, horror, Hannibal, Batman rogues & a bunch of other things. wincest dni pls thanks.
   <img width="150" alt="bros" src="https://64.media.tumblr.com/6e95a1313dd097ddb00eb533e7e39955/99f737933739d0f0-46/s2048x3072/3a5988f17061f967be8af0b862792b035092f770.pnj"><img width="150" alt="bros" src="https://64.media.tumblr.com/3c366eee4d4f11dc005738a4d801ddce/99f737933739d0f0-11/s2048x3072/38d284d99fa3d65f04c26eff112d764731598a0f.pnj">
- #### I enjoy dark media, but I do not want to interact with people who are into incest, loli/shota or anything like that. No hard feelings it's just for my own safety. I probably also won't interact with you if you label yourself as profic or darkship or whatever da hellll
+ #### I enjoy dark media and exploring taboo subjects, but I do not want to interact with people who are into incest, loli/shota or anything like that. No hard feelings it's just for my own safety. I probably also won't interact with you if you label yourself as profic or darkship sorry
 <h1 align="center">
 
   
