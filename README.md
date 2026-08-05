@@ -1,9 +1,9 @@
 <h1 align="center">
-  edward / dean
+  edward / dean <img width="30" alt="bros" src="https://64.media.tumblr.com/f3c3597c6f6a30aef298a7f9193a82ab/9f26041f044d1f89-75/s75x75_c1/6b8afee274625852994a7b72d304178612fbb49a.gifv">
 <p>
-<img width="150" alt="bros" src="https://64.media.tumblr.com/cad02cbd68d401c7cf844eaa33d2f87c/99f737933739d0f0-1b/s2048x3072/3059147d893d2df71cdc94c827403de46e67a1a7.pnj">
+<img width="350" alt="bros" src="https://64.media.tumblr.com/7bbaac0947ab34765e7e83f290838d34/f91de11d79dc4d52-13/s1280x1920/724022e82d61c5b43cf916e53ad038955f18a35a.pnj">
   
-  #### hi im edward i love medical science, movies, Supernatural, horror, Hannibal, Batman rogues & a bunch of other things. wincest dni pls thanks.
+  #### hi im edward :-) catholic & a college student. i love medical science, movies, Supernatural, horror, Hannibal, Batman rogues & a bunch of other things. wincest dni pls thanks.
   <img width="150" alt="bros" src="https://64.media.tumblr.com/6e95a1313dd097ddb00eb533e7e39955/99f737933739d0f0-46/s2048x3072/3a5988f17061f967be8af0b862792b035092f770.pnj"><img width="150" alt="bros" src="https://64.media.tumblr.com/3c366eee4d4f11dc005738a4d801ddce/99f737933739d0f0-11/s2048x3072/38d284d99fa3d65f04c26eff112d764731598a0f.pnj">
  #### I enjoy dark media and exploring taboo subjects, but I do not want to interact with people who are into incest, loli/shota or anything like that. No hard feelings it's just for my own safety. I probably also won't interact with you if you label yourself as profic or darkship sorry
 <h1 align="center">
