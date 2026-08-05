@@ -1,5 +1,5 @@
 <h1 align="center">
-  edward / dean <img width="30" alt="bros" src="https://64.media.tumblr.com/f3c3597c6f6a30aef298a7f9193a82ab/9f26041f044d1f89-75/s75x75_c1/6b8afee274625852994a7b72d304178612fbb49a.gifv">
+  <img width="30" alt="wing" src="https://64.media.tumblr.com/365db5fc894e9d71de327667e3d038d8/8b7bebe60153df1b-a2/s75x75_c1/83e3c4771efca5c2bc912a99e4f7567b9f03835a.gifv"> edward / dean <img width="30" alt="bros" src="https://64.media.tumblr.com/f3c3597c6f6a30aef298a7f9193a82ab/9f26041f044d1f89-75/s75x75_c1/6b8afee274625852994a7b72d304178612fbb49a.gifv">
 <p>
 <img width="350" alt="bros" src="https://64.media.tumblr.com/7bbaac0947ab34765e7e83f290838d34/f91de11d79dc4d52-13/s1280x1920/724022e82d61c5b43cf916e53ad038955f18a35a.pnj">
   
