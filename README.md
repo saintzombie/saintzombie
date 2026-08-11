@@ -3,9 +3,11 @@
 <p>
 <img width="350" alt="bros" src="https://64.media.tumblr.com/7bbaac0947ab34765e7e83f290838d34/f91de11d79dc4d52-13/s1280x1920/724022e82d61c5b43cf916e53ad038955f18a35a.pnj">
   
-  #### hi im edward :-) catholic & a college student. i love medical science, movies, Supernatural, horror, Hannibal, Batman rogues & a bunch of other things. wincest dni pls thanks.
+  #### hi im edward :-) empathetic wizard, catholic & a college student. i love medical science, movies, Supernatural, horror, Hannibal, Batman rogues & a bunch of other things. wincest dni pls thanks.
   <img width="150" alt="bros" src="https://64.media.tumblr.com/6e95a1313dd097ddb00eb533e7e39955/99f737933739d0f0-46/s2048x3072/3a5988f17061f967be8af0b862792b035092f770.pnj"><img width="150" alt="bros" src="https://64.media.tumblr.com/3c366eee4d4f11dc005738a4d801ddce/99f737933739d0f0-11/s2048x3072/38d284d99fa3d65f04c26eff112d764731598a0f.pnj">
  #### I enjoy dark media and exploring taboo subjects, but I do not want to interact with people who are into incest, loli/shota or anything like that. No hard feelings it's just for my own safety. I probably also won't interact much or be friends with you if you label yourself as profic or darkship sorry. I probably could have conversations with you but nothing major. Again its for my own mentality and safety. Thanks
+
+#### I make kms jokes and say the f slur (surprise I'm gay) and I don't harass others because I believe it's a waste of time. I ❤️ the block button
 <h1 align="center">
 
   
